@@ -29,7 +29,6 @@ Hijoputa
 Idiota
 Imbécil
 infierno
-Jilipollas
 Kapullo
 Lameculos
 Maciza
